@@ -4,4 +4,4 @@
 
 !include fantasy.md
 
-
+!include notes.md
