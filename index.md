@@ -5,3 +5,5 @@
 !include fantasy.md
 
 !include notes.md
+
+!include afterword.md
