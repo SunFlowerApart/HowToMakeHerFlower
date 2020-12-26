@@ -7,9 +7,10 @@ jobs:
     runs-on: ubuntu-18.04
     steps:
       - uses: actions/checkout@v2
+      - run: m4 index.m4 > index.md
       - uses: docker://pandoc/core:2.9
         with:
-          args: "--output=HowToMakeHerFlower.epub --metadata title=\"How to make her come\" introduction.md language.md fantasy.md notes.md afterword.md"
+          args: --output=HowToMakeHerFlower.epub index.md
 
       - uses: actions/upload-artifact@master
         with:
