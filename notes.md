@@ -14,3 +14,13 @@
    [DOI:10.3402/snp.v6.31624](https://doi.org/10.3402/snp.v6.31624)
 
 
+2. "87% of husbands and 49% of wives reported consistently experiencing
+   orgasm." from _The Significance of the Female Orgasm: A Nationally
+   Representative, Dyadic Study of Newlyweds’ Orgasm Experience_ by Leonhardt
+   et al.
+   [DOI:10.1016/j.jsxm.2018.05.018](https://doi.org/10.1016/j.jsxm.2018.05.018)
+
+## Talk about sex
+
+
+
