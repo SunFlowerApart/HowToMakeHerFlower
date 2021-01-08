@@ -1,6 +1,18 @@
 # Taking care of her
 
-## She comes first, or last, or in between
+> O fingers skilled in things not to be told!<br />
+> O tongue which, counter-tongued, made the blood bold!<br />
+>
+> from ANTINOUS, by Fernando Pessoa
+
+It is one of the driving themes of this book that physical technique matters
+less than creating the right emotional space and environment for a woman to
+relax into arousal. However, this does not mean that technique is completely
+useless.
+
+## She comes first, or last, or in between. Really, it doesn't matter
+
+
 
 ## On early arrival
 
