@@ -1,5 +1,8 @@
 # Talk about sex
 
+To have better sex (to help bring a woman to orgasm) you should _talk_ about
+it.
+
 ## Find your language to talk about sex
 
 If you are having sex with someone, you need to talk to them about it. This
@@ -80,4 +83,14 @@ You are also, obviously (and this should really go without saying), allowed to
 set up new boundaries. This can be either temporary (_not today, put the
 strap-on away_) or permanent (_actually, this makes me feel too uncomfortable,
 I don't want you to do that anymore_).
+
+
+## Resources
+
+Answering the [Sexual Interests
+Checklist](https://sunflowerapart.github.io/HowToMakeHerFlower/resources/sexual-interests-checklist.html)
+together with your partner is a good conversation starter. This checklist was
+originally designed by two livejournal users and is an excellent way to cover
+all the basics of what you enjoy and do not enjoy. Remember, whatever each
+other's answers: "no kink shaming and no vanilla shaming."
 
