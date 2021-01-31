@@ -1,9 +1,14 @@
 # Make yourself more attractive
 
-Take care of your personal hygiene and dress up. Dressing up does not
-necessarily mean _dress more formally_. 
+You do not need to spend 6 hours at the gym every day or wear very expensive
+suits to make yourself look better. But a small effort can go a long way.
 
-Take time for sex. 
+First of all, make sure you are taking care care of your personal hygiene. This
+should be more obvious than it sometimes is.
+
+Dressing up does not necessarily mean _dress more formally_ or _wear expensive
+suits_.
+
 
 ## Fix tension points in your relationship
 
