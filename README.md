@@ -2,7 +2,7 @@
 
 A sex-positive guide to pleasure.
 
-This is very much a _WIP_ (Work in progress).
+This is very much a _WIP_ (Work in progress), but _comments are welcome_.
 
 ## Chapters
 
@@ -20,5 +20,5 @@ Author: Sunflower Apart
 
 Comments/Complaints/Praise are all Welcome.
 
-Copyright: Sunflower 2020. All Rights Reserved.
+Copyright: Sunflower 2020-2021. All Rights Reserved.
 
