@@ -12,6 +12,17 @@ useless.
 
 ## She comes first, or last, or in between. Really, it doesn't matter
 
+There is a modern sex script, which goes something like the following: _first
+the man should pleasure the woman, mainly through oral sex (although use of
+fingers is also encouraged). After she has achieved orgasm, they can have
+penetrative intercourse so that he may also achieve orgasm. Maybe she can also
+have a second orgasm during intercourse, which is a good bonus, but this is not
+necessary because she already came_. While this script is better for women than
+an alternative where there is little foreplay and only short intercourse, it
+can also be stiffling to both participants.
+
+Sex is an exchange, but it is not a transaction.
+
 A particular example of this is how to deal with "early arrival." Most men
 will, at some point, "arrive too early". This is not an issue if it happens
 occasionally. It becomes an issue (potentially, a huge issue) if it happens
