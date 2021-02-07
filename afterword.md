@@ -1,5 +1,8 @@
 # Afterword
 
+Thank you for making it this far into the book. We hope it was helpful and you
+got something out of it.
+
 If you have any comments, feel free to get in touch at
 [SunflowerApart@protonmail.ch](mailto:SunflowerApart@protonmail.ch).
 We are hoping to hear from readers of any gender and in any relationship status
