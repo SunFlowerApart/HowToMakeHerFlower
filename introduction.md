@@ -52,8 +52,8 @@ scientific literature substantiating the points that we make in the chapters.
 ## Notes on activities
 
 The suggested activities are not _homework_. They are suggestions, which we
-hope are fun and engaging. We would love to hear from you what you thought
-about them and other suggestions.
+hope are fun and engaging. Take them as you will, do them as you want, adapt to
+you, to your relationship, to time and place.
 
 ## Getting in touch
 
@@ -63,5 +63,4 @@ helpful, what was not? Any other suggestion, idea, thought?
 
 Email ([SunflowerApart@protonmail.ch](mailto:SunflowerApart@protonmail.ch)) or
 on Twitter ([@SunflowerApart](https://twitter.com/SunflowerApart)).
-
 
