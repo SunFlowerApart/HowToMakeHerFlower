@@ -70,6 +70,17 @@ Remember, what we said at the beginning: _it's about making sex a safe space so
 that she so that she naturally has orgasms (most of the time, and often
 multiple times, but maybe not always)_. So, if it sometimes does not happen,
 that's fine. Good sex is all about the paradoxes (_safe and exciting_, _at ease
-and turned on_)
+and turned on_).
 
+## Suggested activities
+
+1. _Couple activity_. Take a day off together.
+
+2. _Couple activity_. Go on a _sex toy_ shopping spree. This can be done from
+   the comfort of your own laptop if you are shy about visiting a real sex shop
+   and most companies will ship their products in a non-descript box. Companies
+   such as _Fun Factory_ have good, informative, websites and good,
+   high-quality, products (we are not affiliated with any brand). This is also
+   not an area where you want to save one pennies: get high-quality products
+   from reputable brands.
 
