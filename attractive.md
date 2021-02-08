@@ -19,3 +19,16 @@ zero possibility for negative effects from relationship tensions to the sexual
 life in the bedroom. This is especially the case in the context of a long-term
 relationship (which is different from a short-term fling).
 
+This may mean _going to couple's therapy_. If you've had couple's therapy
+before, you may already know that it can be helpful not just when the couple is
+on the verge of breaking up. In fact, _couple's therapy_ is a bad name for the
+practice, which is often _coaching_ and not _therapy_. Professional athletes
+have coaches even when they are the best in the world. So, even if you have the
+best relationship in the world, you might benefit from coaching.
+
+## Suggested activities
+
+1. _Personal activity_. Spend some money on a make over: Get a real haircut,
+   get new clothes (whatever fits your style; it does not have to be a new
+   tailored suit—although this may be a good idea too), get new shoes.
+
