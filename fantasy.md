@@ -10,7 +10,7 @@ fantasies. This is not really up for debate, and several studies have
 demonstrated it. Every once in a while, this leads some awful person
 (typically, a male activist of some sort) to conclude that, therefore, rape
 cannot be so bad. This is completely and utterly wrong. Remember at the start
-of the book, we said that _women enjoy sex at that seeminlgy paradoxical
+of the book, we said that _women enjoy sex at that seemingly paradoxical
 intersection of feeling comfortable and excited_. Well, a rape fantasy can (for
 some, but not all, women) fulfill exactly this criteria: it can trigger
 feelings of danger and excitement, while being completely safe as it is just a

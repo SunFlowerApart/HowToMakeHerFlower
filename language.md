@@ -27,7 +27,7 @@ another reason why one-night-stand sex tends to be disappointing.
 
 ## Talking about kinks
 
-_Do not kink-shame, do not vallina-shame_. For some of us, anything beyond
+_Do not kink-shame, do not vanilla-shame_. For some of us, anything beyond
 missionary position is kinky, while others will consider anything not involving
 multiple people, whips, chains, cameras, and 3 hours of preparatory discussion
 to be _basically vanilla_.
@@ -44,7 +44,7 @@ kinks) with no judgement.
 ## Negotiating boundaries
 
 Okay, assume you've gotten this far. You have developed a common language, you
-have gotten to the point where you are confortable asking for what you want and
+have gotten to the point where you are comfortable asking for what you want and
 listening to her ask what she wants. Great, you're almost there.
 
 Now, she tells you something that she wants to do to you. There are several

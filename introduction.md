@@ -24,7 +24,7 @@ yourself in). So, here we are: the book, you and your female partner.
 
 The _orgasm gap_ refers to the fact that fewer women have regular orgasms than
 men. The numbers vary by study and by country, but the picture is somewhat
-consistent. Almost all men have regular orgasms during sex. it's not a given;
+consistent. Almost all men have regular orgasms during sex. It's not a given;
 depending on exactly where and how the question is asked, a third to over half
 of women report that they never (or only rarely) orgasm during sex.
 

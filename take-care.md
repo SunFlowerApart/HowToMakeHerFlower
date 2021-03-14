@@ -19,7 +19,7 @@ penetrative intercourse so that he may also achieve orgasm. Maybe she can also
 have a second orgasm during intercourse, which is a good bonus, but this is not
 necessary because she already came_. While this script is better for women than
 an alternative where there is little foreplay and only short intercourse, it
-can also be stiffling to both participants.
+can also be stifling to both participants.
 
 Sex is an exchange, but it is not a transaction.
 
