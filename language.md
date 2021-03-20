@@ -1,29 +1,30 @@
 # Talk about sex
 
-To have better sex (to help bring a woman to orgasm) you should _talk_ about
-it.
 
-## Find your language to talk about sex
+## Find your language
 
 If you are having sex with someone, you need to talk to them about it. This
 sounds obvious, but too many couples never talk about sex beyond _do you want
-to do it?_ and _not now_.
+to do it?_ and _not now_.  This is not enough. You need to be able to talk
+about the details of sexual acts in a descriptive, unambiguous, manner.
 
-This is not enough. You need to be able to talk about the details of sexual
-acts in a descriptive, unambiguous manner. Do you want her to squeeze your
-penis while performing a blowjob or do you want to ask her if she would like a
-finger up her anus? Different couples find different languages. Some bristle at
-the medical _penis_ and _vagina_ and prefer the terms _cock_ and _pussy_;
-others feel just the opposite; yet a third category dislikes all of these and
-ends up inventing their endearing names for body parts. _None of this matters,
-what matters is that you find a set of terms and expressions that you are both
-comfortable with and use it_.
+This is often only really possible in the context of a long-term relationship
+and is another reason why one-night-stand sex are often disappointing from the
+sexual point-of-view.
+
+Do you want her to squeeze your penis while performing a blowjob or do you want
+to ask her if she would like a finger up her anus? Different couples find
+different languages. Some bristle at the medical _penis_ and _vagina_ and
+prefer the terms _cock_ and _pussy_; others feel just the opposite; yet a third
+category dislikes all of these and ends up inventing their endearing names for
+body parts. _None of this matters, what matters is that you find a set of terms
+and expressions that you are both comfortable with and use it_.
 
 It may take a while for you to find the right set of terms. Depending on both
 your personalities, this may be best achieved by addressing it head-on (_do you
 prefer if I call it "pussy" or "vagina"?_), but it is often done by some
-exploration over time about which terms work best for both of you. This is
-another reason why one-night-stand sex tends to be disappointing.
+exploration over time about which terms work best for both of you. To help you
+work on this, there is the _Name this_ checklist at the end of the book.
 
 ## Talking about kinks
 
@@ -32,14 +33,13 @@ missionary position is kinky, while others will consider anything not involving
 multiple people, whips, chains, cameras, and 3 hours of preparatory discussion
 to be _basically vanilla_.
 
-It is not even a straight spectrum. Some people have kinks in one area of their
-sexuality and are relatively conventional in another (e.g., someone may enjoy
-being tied up and whipped, but not be open to the idea of exposing herself to
-strangers; while others will be exactly the other way around): kinks are not
-interchangeable.
+It is not even a single-line spectrum. Some people have kinks in one area of
+their sexuality and are relatively conventional in another (e.g., someone may
+enjoy being tied up and whipped, but not be open to the idea of exposing
+herself to strangers; while others will be exactly the other way around).
 
-Wherever you are on this spectrum, try to listen to her desires (and possible
-kinks) with no judgement.
+Wherever you are on this spectrum, try to listen to each other's desires (and
+possible kinks) with no judgement.
 
 ## Negotiating boundaries
 
@@ -85,12 +85,17 @@ strap-on away_) or permanent (_actually, this makes me feel too uncomfortable,
 I don't want you to do that anymore_).
 
 
-## Resources
+## Suggested activities
 
-Answering the [Sexual Interests
-Checklist](https://sunflowerapart.github.io/HowToMakeHerFlower/resources/sexual-interests-checklist.html)
-together with your partner is a good conversation starter. This checklist was
-originally designed by two livejournal users and is an excellent way to cover
-all the basics of what you enjoy and do not enjoy. Remember, whatever each
-other's answers: "no kink shaming and no vanilla shaming."
+1. _Couple activity_: Answer the [_Name this_ checklist](). Either do it
+   together or have each of you do it separately, comparing the results
+   afterwards.
+
+2. _Couple activity_: Build upon the _Name this_ checklist by answering the
+   [Sexual Interests
+   Checklist](https://sunflowerapart.github.io/HowToMakeHerFlower/resources/sexual-interests-checklist.html)
+   together with your partner as a conversation starter. This checklist was
+   originally designed by two livejournal users and is an excellent way to
+   cover all the basics of what you enjoy and do not enjoy. Remember, whatever
+   each other's answers are: "no kink shaming and no vanilla shaming."
 
