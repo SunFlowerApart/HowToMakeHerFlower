@@ -1,6 +1,5 @@
 # Talk about sex
 
-
 ## Find your language
 
 If you are having sex with someone, you need to talk to them about it. This
@@ -17,14 +16,28 @@ to ask her if she would like a finger up her anus? Different couples find
 different languages. Some bristle at the medical _penis_ and _vagina_ and
 prefer the terms _cock_ and _pussy_; others feel just the opposite; yet a third
 category dislikes all of these and ends up inventing their endearing names for
-body parts. _None of this matters, what matters is that you find a set of terms
-and expressions that you are both comfortable with and use it_.
+body parts. _None of this matters in the end, what matters is that you find a
+set of terms and expressions that you are both comfortable with (and use it)_.
 
 It may take a while for you to find the right set of terms. Depending on both
 your personalities, this may be best achieved by addressing it head-on (_do you
 prefer if I call it "pussy" or "vagina"?_), but it is often done by some
 exploration over time about which terms work best for both of you. To help you
 work on this, there is the _Name this_ checklist at the end of the book.
+
+## Ask her for what she wants
+
+Ask her for what she wants. Do it early and do it often.
+
+## Ask for what you want
+
+This goes both ways. Tell her what you want. This has two big advantages: you
+get what you want, but she might appreciate the reduced uncertainty and relax.
+
+Do thread carefully on tone, though. It is one thing to ask, it is another
+thing to demand. If you are asking for something that you have not done before
+together (for example, anal sex), it may be best to bring it up outside of the
+bedroom first.
 
 ## Talking about kinks
 
